@@ -49,7 +49,7 @@ _[2022 – 2023]_
 ## 📫 Contacto
 
 - **LinkedIn:** [www.linkedin.com/in/franfer98](https://www.linkedin.com/in/franfer98)
-- **Correo electrónico:** [franfernandez98t@gmail.com]
+- **Correo electrónico:** franfernandez98t@gmail.com
 
 ---
 

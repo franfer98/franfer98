@@ -48,7 +48,7 @@ _[2022 – 2023]_
 
 ## 📫 Contacto
 
-- **LinkedIn:** [](www.linkedin.com/in/franco-fernandez-20609b240)  
+- **LinkedIn:** [www.linkedin.com/in/franfer98](www.linkedin.com/in/franfer98)  
 - **Correo electrónico:** franfernandez98t@gmail.com 
 
 ---
